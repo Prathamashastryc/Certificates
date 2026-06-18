@@ -23,3 +23,4 @@
 ![intro to sunagents](https://github.com/user-attachments/assets/2daf7f8a-297f-49cb-a765-06449ed0981e)
 ![model context protocol](https://github.com/user-attachments/assets/a15cf5a3-7bbc-4d17-bd98-e9f7b5734158)
 ![teaching ai fluency](https://github.com/user-attachments/assets/4f2d497a-2433-48e5-8d7a-e84ee1afa3ec)
+<img width="2000" height="1414" alt="PRATHAMA SHASTRY C" src="https://github.com/user-attachments/assets/2acfb4bd-b2ee-4942-8fea-44ff9b4cb983" />
