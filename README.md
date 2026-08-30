@@ -25,3 +25,4 @@
 ![teaching ai fluency](https://github.com/user-attachments/assets/4f2d497a-2433-48e5-8d7a-e84ee1afa3ec)
 <img width="2000" height="1414" alt="PRATHAMA SHASTRY C" src="https://github.com/user-attachments/assets/2acfb4bd-b2ee-4942-8fea-44ff9b4cb983" />
 <img width="1683" height="1189" alt="0" src="https://github.com/user-attachments/assets/91ab4d17-b9c7-4752-a2c5-35ee3694aefa" />
+<img width="1131" height="788" alt="WhatsApp Image 2026-08-30 at 2 28 07 PM" src="https://github.com/user-attachments/assets/2db24679-9219-4d31-a77d-011058e38aa5" />
